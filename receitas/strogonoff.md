@@ -1,4 +1,4 @@
-# STROGONOFF FRANGO :chicken:  
+# STROGONOFF :chicken:  
 
 **INGREDIENTES**
 
